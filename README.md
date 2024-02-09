@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME: นางสาวธารณา มิ่งมิตรมี
+# STUDENT ID: 650610840
